@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=lignexxx&color=yellow&style=for-the-badge&base=10&align="center")
+![](https://komarev.com/ghpvc/?username=lignexxx&color=yellow&style=for-the-badge)
 <p align="center">
       <img width="300" height="300" src="https://static.wikia.nocookie.net/houkai-star-rail/images/1/1a/Sticker_PPG_13_Aventurine_03.png/revision/latest?cb=20240802020019">
 </p>
