@@ -14,4 +14,4 @@
 <p align="center">
      <img width="300" height="300" src="https://media1.tenor.com/m/7n02vvC_1qIAAAAd/aventurine-origami-bird-aventurine.gif"
 </p>
-<h6 align="center"> me at gif btw
+<h6 align="center"> me btw
