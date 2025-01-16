@@ -1,6 +1,11 @@
-
+## <h5 align="center"> i luv pony town❤❤
 <p align="center">
-      <img width="200" height="200" src="https://static.wikia.nocookie.net/houkai-star-rail/images/1/1a/Sticker_PPG_13_Aventurine_03.png/revision/latest?cb=20240802020019">
+      <img width="500" height="200" src="https://sun9-34.userapi.com/impg/Es7zT-Fm_niVkWDeGJ3Dziu00Kcu3ZvFTVwirw/RclgDEBw3tU.jpg?size=468x205&quality=95&sign=933f75e19841b1600f983cc34800fc08&type=album">
+</p>
+<p style="white-space: nowrap;">
+<p style="white-space: nowrap;">
+ <p align="center">
+<img width="200" height="200" src="https://static.wikia.nocookie.net/houkai-star-rail/images/1/1a/Sticker_PPG_13_Aventurine_03.png/revision/latest?cb=20240802020019">
 </p>
 <h4 align="center"> info: ligne, any prns but prefer she\her. rus\eng, sometimes use translator, so sorry if i say something stupid >_< 
 <p align="center">
