@@ -1,4 +1,7 @@
-
+## <h5 align="center"> i luv IT❤️❤️
+<p align="center">
+      <img width="500" height="200" src="https://sun9-16.userapi.com/impg/OkRDI0ZdEdcyFJhHWBa0b6kZNvnTV4SKhPGMew/ICLuxnTyLKg.jpg?size=463x208&quality=95&sign=4aa4d6c825366c2836c9b4f09ecf971d&type=album">
+</p>
  <p align="center">
 <img width="200" height="200" src="https://static.wikia.nocookie.net/houkai-star-rail/images/1/1a/Sticker_PPG_13_Aventurine_03.png/revision/latest?cb=20240802020019">
 </p>
