@@ -1,6 +1,4 @@
 
-<p style="white-space: nowrap;">
-<p style="white-space: nowrap;">
  <p align="center">
 <img width="200" height="200" src="https://static.wikia.nocookie.net/houkai-star-rail/images/1/1a/Sticker_PPG_13_Aventurine_03.png/revision/latest?cb=20240802020019">
 </p>
