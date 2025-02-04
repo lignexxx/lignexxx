@@ -3,7 +3,7 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31mjajscflmg5n57zw45roirts5i&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&bar_color=000000&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 
-════════════════════════[Atabook](https://lignexxx.atabook.org/)ㅤㅤㅤㅤ[Pronouns page](https://en.pronouns.page/@ligne)ㅤㅤㅤㅤ[Telegram](https://t.me/lignexxx)════════════════════════
+════════════════════════ㅤ[Atabook](https://lignexxx.atabook.org/)ㅤㅤㅤㅤ[Pronouns page](https://en.pronouns.page/@ligne)ㅤㅤㅤㅤ[Telegram](https://t.me/lignexxx)ㅤ════════════════════════
 
 ![](https://64.media.tumblr.com/658fc35774bd2aa182dee864099764bc/3d80be896f3a3b56-c7/s100x200/1082a9ef6fa8f76a592ca0b6dfc54c36561f0f68.gifv)
 ![](https://64.media.tumblr.com/0ab962c08cd1d25613fad6cba2b6e9d4/1b87f82d913fbf51-30/s100x200/0d35a0bba9c031e2d7c84ee98cb96d8855181986.pnj)
