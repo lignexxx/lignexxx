@@ -3,12 +3,8 @@
 </p>
 <h4 align="center"> info: ligne, any prns but prefer she\her. rus\eng >_<  w2i. c+h is ok! 
 <h4 align="center">  DNI: avenpaz, homophobia, transphobia + inadequate fans of ANY pairings&characters
-<p align="center">
-      main fandoms: identity v, honkai star rail, 8:11.
-</p>
-<p align="center"> 
-      other fandoms: project sekai, afk arena, cookie run, YTTD, danganronpa, steven universe, south park, witch heart, the heathers, alien stage, mandela catalogue. 
-</p>
+<h4 align="center"> main fandoms: identity v, honkai star rail, 8:11.
+<h4 align="center">other fandoms: project sekai, afk arena, cookie run, YTTD, danganronpa, steven universe, south park, witch heart, the heathers, alien stage, mandela catalogue. 
 <p style="white-space: nowrap;">
 <p align="center">
      <img width="300" height="300" src="https://media1.tenor.com/m/7n02vvC_1qIAAAAd/aventurine-origami-bird-aventurine.gif"
