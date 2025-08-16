@@ -1,6 +1,5 @@
 <p align="center">
- <img width="2000" height="500" alt="Untitled94_20250815232648~3" 
-   src="https://github.com/user-attachments/assets/0499e670-ce66-4edb-abbc-ab33ff91c019" />
+<img width="1946" height="474" alt="image" src="https://github.com/user-attachments/assets/95eeffd7-6213-4b0f-a360-7391a11d76aa" />
 </p>
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ————✸———— [INFO](https://t.me/ligninf1) ————✸————ㅤ
