@@ -1,8 +1,7 @@
 <p align="center">
-  <img width="300" height="300" alt="image" 
-src="https://static.wikia.nocookie.net/houkai-star-rail/images/b/b0/Sticker_PPG_22_Anaxa_01.png/revision/latest?cb=20250409060059"
+<img width="1000" height="400" alt="image" src="https://github.com/user-attachments/assets/689c3d48-8685-4280-9c77-4eb12ebfea2c" />
 </p>
 
-
-  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=lignexxx&style=for-the-badge&color=b1dab9&label=✦)
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[ata](https://lignexxx.atabook.org/) ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[strawpage](https://lignexxx.straw.page/)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[tgc](https://t.me/ligninf1)ㅤㅤㅤㅤ
+ 
+ㅤ ㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=lignexxx&style=for-the-badge&color=a1d5c0&label=✦)
