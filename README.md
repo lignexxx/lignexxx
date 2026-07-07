@@ -3,6 +3,6 @@
 " />
 </p>
 
- ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[ata](https://lignexxx.atabook.org/) ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[strawpage](https://lignexxx.straw.page/)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[tgc](https://t.me/ligninf1)ㅤㅤㅤㅤ
+ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[ata](https://lignexxx.atabook.org/) ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[strawpage](https://lignexxx.straw.page/)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[tgc](https://t.me/ligninf1)ㅤㅤㅤㅤ
  
-ㅤ ㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=lignexxx&style=for-the-badge&color=000000&label=✦)
+ㅤ ㅤ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=lignexxx&style=for-the-badge&color=000000&label=✦)
